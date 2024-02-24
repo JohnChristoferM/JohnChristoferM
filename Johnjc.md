@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...data science and graphics design.
 - 📫 How to reach me ... johnjc2002@gmail.com ,  + 91 9597472444 .
 - 😄 Pronouns: ...john
-- ⚡ Fun fact: ... fond of ice cream , bikes , technology, travel, fashion 
+- ⚡ Fun fact: ... fond of ice cream , bikes , technology, travel, fashion , photography 
 
 <!---
 JohnChristoferM/JohnChristoferM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
